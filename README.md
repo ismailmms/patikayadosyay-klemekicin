@@ -1,0 +1,2 @@
+# patikayadosyayüklemekicin
+ bölümügeçmekiçin15dakikada
